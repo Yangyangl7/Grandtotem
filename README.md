@@ -7,4 +7,4 @@ Grandtotem
 
 ***Paper Link***
 <br><br>
-https://drive.google.com/open?id=1m_INAyZTW-qqERX3NGkZV6pC50XcS_KR
+https://drive.google.com/file/d/1KugfgFaO2fYZDLO60cIuKKhPLQUoAauw/view?usp=sharing
